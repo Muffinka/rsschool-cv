@@ -1,1 +1,1 @@
-# rsschool-cv
+https://muffinka.github.io/rsschool-cv/cv
